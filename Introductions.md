@@ -1,14 +1,14 @@
 1) Name (nickname?)
 
-
+:) :) :) :) :) :) :) :)
 
 2) major(s?)
 
-
+:) :) :) :) :) :) :) :)
 
 3) how many years have you studied at UW-Madison?
 
-
+:) :) :) :) :) :) :) :)
 
 4) What type of data are you interested in studying?  Topic (e.g. politics) or data source (e.g. twitter)? Structure of data (e.g. social networks)? 
 
